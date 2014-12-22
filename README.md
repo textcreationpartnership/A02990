@@ -35,11 +35,70 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A friendly triall of the grounds tending to separation in a plain and modest dispute touching the la
+
+1. To the Chriſtian Reader, ſound judgement, the
+ſpirit of wiſdome, uprightneſſe of heart, and ſweet
+communion with GOD.
+
 #####Body#####
-A friendly triall of the grounds tending to separation in a plain and modest dispute touching the la
+
+1. CHAP. I. Of a ſtinted form of Prayer.
+
+1. CHAP. II. All things eſſentiall to prayer may be obſerved
+in a preſcript form.
+
+1. CHAP. III. A ſtinted Liturgie or publick form of prayer
+is no breach of the ſecond commandment.
+
+1. CHAP. IIII. It is as lawfull to pray unto God in a form of
+words deviſed by others, as to ſing pſalmes to
+the praiſe of God in a ſtinted form of words
+preſcribed by others.
+
+1. CHAP. V. A ſtinted form of prayer doth not quench the
+Spirit.
+
+1. CHAP. VI. In ſcripture there be preſcript forms of bleſſing,
+prayers, ſalutations, &c. which may lawfully
+be uſed.
+
+1. CHAP. VII. The churches of God have both uſed and approved
+a ſtinted Liturgie.
+
+1. CHAP. VIII. The people may lawfully be preſent at thoſe prayers
+which are put up unto God in a ſtinted
+form of words, and partake in divine ordinances
+adminiſtred in a ſtinted Liturgie.
+
+1. CHAP. IX. It is lawfull for a Chriſtian to be preſent at
+that ſervice which is read out of a book in ſome
+things faultie both for form and matter.
+
+1. CHAP. X. It is lawfull to communicate in a mixt congregation
+where ignorant and prophane perſons
+be admitted to the ſacrament.
+
+1. CHAP. XI. Of holding communion with that aſſembly in the
+worſhip of God, where we cannot perform all
+duties mentioned Matth. 18. 15, 16, 17.
+
+1. CHAP. XII. The community of the faithfull, much leſſe two
+or three ſeparated from the world, and gathered
+together into the name of Chriſt by a covenant,
+are not the proper and immediate ſubject
+of power eccleſiaſticall.
+
+1. CHAP. XIII. An examination of ſundry poſitions laid down by
+Mr Jacob in his Expoſition of the ſecond commandement,
+tending to Separation.
+
 #####Back#####
-A friendly triall of the grounds tending to separation in a plain and modest dispute touching the la
+
+1. The generall heads conteined
+in this Book.
+
+1. Octob. 9. 1639.
+
 **Types of content**
 
   * There are 2 **verse** lines!
